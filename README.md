@@ -1191,7 +1191,7 @@ statements."
 
 "Perhaps, but my statements are part of your deal, your personal circumstances in
 the great deal. You do not really know what is or what could be in store for you.
-But you will have to come to terms with what could never be in store for you, 
+But you will have to come to terms with what would never be in store for you, 
 especially if you do not break rank in the right way. That is the nature of the
 word `ambition` you are talking about, a game for gamblers of the highest caliber
 of human society. But on the great deal, what is it? Who really knows everything? 
